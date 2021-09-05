@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @akshaythekkiniyil
+- 👀 I’m interested in RPA and Exploring new technologies
